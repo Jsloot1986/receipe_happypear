@@ -17,7 +17,8 @@ To make this veggie burger you need the follow **ingredients**:
 * 4 tbsp tamari
 * 4 tbsp rice flour
 * 4 tbsp Psyllium husk
-* 4 tbsp gram flour - for coating  
+* 4 tbsp gram flour - for coating
+* add some mayo of ketchup if you like for the taste
   
 ###DIRECTIONS
 1. Roughly chop the sweet potato.  
